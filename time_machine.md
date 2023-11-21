@@ -5,3 +5,4 @@ Gott, ich freue mich auf heute abend und auf Abendessen
 Nutze ich die Zeit hier wirklich richtig? 
 Bin ich ein Wissenschaftler wie die anderen? 
 
+Habe ich vorhin völligen Bullshit geredet #Konstruktivismus 
