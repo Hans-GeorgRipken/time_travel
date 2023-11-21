@@ -6,3 +6,5 @@ Nutze ich die Zeit hier wirklich richtig?
 Bin ich ein Wissenschaftler wie die anderen? 
 
 Habe ich vorhin völligen Bullshit geredet #Konstruktivismus 
+
+Und hier bin ich mal wieder in Selbstzweifeln versunken
